@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @34zh
+- 👀 I’m interested in Minecraft
+- 🌱 I’m currently learning Coding
